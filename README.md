@@ -1,4 +1,4 @@
-### Hi there, I'm [Rebecca] 👋
+### Hi there, I'm Rebecca 👋
 
 
 ### I'm a Designer, Sketch Addict, Movie lover and Illustrator!
